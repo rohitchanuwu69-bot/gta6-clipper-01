@@ -7,9 +7,10 @@
 A short vertical GTA 6 clip cut from Rockstar Games' official Grand Theft Auto VI
 Trailer 2, made for the $500 make.fun bounty
 [Clip GTA 6 for the most YouTube views](https://make.fun/bounty/gta6-clipper-01).
-The clip opens on the trailer's best moment — Vice City at its most alive — and
-then turns to the viewer with make.fun's pitch: make clips like this with AI and
-earn money on make.fun. The top 20 most-watched videos share $500.
+The clip opens on Jason's morning in Leonida — fixing a roof in the sun, a drive
+past the Vice City skyline — and then turns to the viewer with make.fun's pitch:
+make clips like this with AI and earn money on make.fun. The top 20 most-watched
+videos share $500.
 
 The video is the entry: it is published public on YouTube as a Short, its
 description carries the bounty's line and the entrant's make.fun play code, and
